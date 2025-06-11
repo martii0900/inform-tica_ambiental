@@ -14,7 +14,8 @@
 
 La **contaminación ambiental** es la introducción de sustancias nocivas en la naturaleza que afectan negativamente la salud de seres vivos y el equilibrio de los ecosistemas. ¡Cuidar el planeta es tarea de todos! 🌎💪
 
-![Contaminación ambiental]![image](https://github.com/user-attachments/assets/b4080456-957c-4a53-b01c-65848164694d)
+![image](https://github.com/user-attachments/assets/017bb50d-5e03-4211-9235-e87f55105183)
+
 
 
 ---
@@ -23,7 +24,8 @@ La **contaminación ambiental** es la introducción de sustancias nocivas en la 
 
 Los **residuos informáticos** son aparatos electrónicos que ya no se usan y pueden contener materiales tóxicos como plomo y mercurio. Si no se reciclan adecuadamente, dañan nuestro entorno y nuestra salud. 🚮⚠️
 
-![Residuos electrónicos](https://upload.wikimedia.org/wikipedia/commons/thumb/e/e7/E-waste_recycling.jpg/640px-E-waste_recycling.jpg)
+![image](https://github.com/user-attachments/assets/102e7015-f913-4b9a-ab48-180fe42d666d)
+
 
 ---
 
