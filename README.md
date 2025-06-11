@@ -14,7 +14,8 @@
 
 La **contaminación ambiental** es la introducción de sustancias nocivas en la naturaleza que afectan negativamente la salud de seres vivos y el equilibrio de los ecosistemas. ¡Cuidar el planeta es tarea de todos! 🌎💪
 
-![Contaminación ambiental](https://upload.wikimedia.org/wikipedia/commons/thumb/5/53/Pollution_in_Kolkata.jpg/640px-Pollution_in_Kolkata.jpg)
+![Contaminación ambiental]![image](https://github.com/user-attachments/assets/b4080456-957c-4a53-b01c-65848164694d)
+
 
 ---
 
